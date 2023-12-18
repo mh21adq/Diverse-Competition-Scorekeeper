@@ -1,0 +1,1 @@
+# Diverse-Competition-Scorekeeper
